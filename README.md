@@ -1,0 +1,30 @@
+# 嵐 – I seek
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I'm walking round in circles 名前も知らぬ君を
+探し歩いた夜は 月灯りさえ眩しい
+どこに隠れて踊る?
+So 始まるStory 君がその角を曲がる
+追いかけてく未来が 一つの道照らしてる
+黙っても感じる気持ち もう二度と逢えない奇跡
+I want somebody 一度だけ めぐり逢えた偶然に
+I need somebody 君を待っていた ただ守りたかった
+生まれた恋気 風に乗ってく
+今夜逃がさぬように 君の瞳焼きつけた
+壊れた時計の針が 運命の背中を蹴る
+I want somebody 伝えたい 君の未来地図のなか
+I need somebody 二人の季節 回っているから
+I want somebody 一度だけ めぐり逢えた偶然に
+I need somebody 君を待っていた ただ守りたかった
+出会いは偶然に 未来はこの手の中に
+君の名前 聞かずダキシメル…
+I want somebody 伝えたい 君の未来地図のなか
+I need somebody 二人の季節 回っているから
+I want somebody 一度だけ めぐり逢えた偶然に
+I need somebody 君を待っていた ただ守りたかった
+I want somebody
+I need somebody
+I want somebody!
+```
